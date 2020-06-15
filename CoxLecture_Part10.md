@@ -1,6 +1,6 @@
 # Christoph Cox's Lecture "History of Sound Art" (Part 10)
 
-### 10th part (starts at 01:15:40 - ends at 01:24:46) of Christoph Cox's Lecture "History of Sound Art"
+### 10th part (starts at 01:15:40 - ends at 01:28:55) of Christoph Cox's Lecture "History of Sound Art"
 
 <b> Απομαγνητοφώνηση</b>
 
